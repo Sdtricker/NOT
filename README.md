@@ -82,13 +82,13 @@ If you found this project helpful, **don't forget to give it a ⭐ on GitHub.** 
 
 Join our Telegram channels, 
 
-- [@SingleDevelopers](https://t.me/SingleDevelopers), for more amazing projects and updates ✓
-- [@SL_Developers](https://t.me/SL_Developers), for this project updates ✓
+- [@NGYT777G](https://t.me/NGYT777GG), for more amazing projects and updates ✓
+- [@NGYT777G]([[https://t.me/NGYT777GG](https://t.me/NGYT777GG)](https://t.me/NGYT777GG)), for this project updates ✓
 
 ## 📬 Contact
 If you have any questions, feedback, or just want to say hi, you can reach out to me:
 
-- Telegram : [@MalithRukshan](https://t.me/MalithRukshan)
-- Email : [hello@malith.dev](mailto:hello@malith.dev)
+- Telegram : [@MalithRukshan]([https://t.me/NGYT777GG](https://t.me/NGYT777GG))
+- Email : [hello@ng.dev](mailto:ng@malith.dev)
 
-🧑‍💻 Built with 💖 by [Single Developers </> ](https://t.me/SingleDevelopers)
+🧑‍💻 Built with 💖 by [NGYT </> ](https://t.me/NGYT777GG)
